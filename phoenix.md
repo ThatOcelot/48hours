@@ -1,3 +1,6 @@
+# 48 hours in Phoenix
+## Day 1
+
 Your first moments in Phoenix will be spent at Phoenix Sky Harbor International Airport. When you arrive in the United States, you will go through customs. You must have received a form on your inbound flight to the USA. You've likely done this at a different airport, but some flights via British Airways may require you to go through customs at Sky Harbor. US CBP and most airlines must provide interpreter services.
 
 When you arrive in Phoenix and clear customs, be sure to collect your luggage from the baggage claim area. If someone is guiding you around town, they will most likely be waiting near the baggage claim. They will hold a sign with your name on it.
