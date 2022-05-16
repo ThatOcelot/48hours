@@ -7,11 +7,11 @@ When you arrive in Phoenix and clear customs, be sure to collect your luggage fr
 
 One of the places close to Sky Harbor is the Phoenix Zoo. Phoenix Zoo has been focused on conservation since it was founded in 1962. You will find many animal species at the zoo, including several species native to Arizona. In December, the zoo hosts a light show called ZooLights.
 
-Right next to the zoo is Papago Park. You will find the Desert Botanical Garden there. There is also a pyramid-shaped building that is the tomb of George WP Hunt, the first governor of Arizona.
+Right next to the zoo is Papago Park. You will find the Desert Botanical Gardens here. There is also a pyramid-shaped building that is the tomb of George WP Hunt, the first governor of Arizona.
 
 There is a famous halal food stand in New York called Halal Guys. They are world famous for their chicken platter, consisting of chicken, rice, lettuce and tomato and served with pita bread, white sauce and hot sauce. Since you've decided to visit Phoenix and not New York, I'd say this is not for you. However, this is not the case. Actually, Phoenix has a Halal Guys location, but it's not a food cart but rather a restaurant.
 
-The next destination I had in mind was the Paragon Science Academy, but since we've already been to the Phoenix Zoo, we don't need to go there.
+The next destination I had in mind was Paragon Science Academy, but since we've already been to the Phoenix Zoo, we don't need to go there.
 
 Next, we will go to the Heard Museum. The Heard Museum is one of the thirty-three Phoenix Points of Pride you've been to three before (Phoenix Zoo, Papago Park, and Desert Botanical Gardens). The Heard Museum showcases the culture and history of the indigenous people of the Southwestern United States.
 
@@ -21,8 +21,12 @@ Then we will go to Arizona Center. It has two office buildings, retail space and
 
 Next up is Arizona State University. ASU is one of the three largest colleges in Arizona, along with Tucson's University of Arizona and Flagstaff's Northern Arizona University. The Tempe Campus is ASU's main campus, but we will also visit the West Campus. At ASU you'll find the Gammage Memorial Auditorium, designed by Frank Lloyd Wright. Tempe Butte can also be found on campus.
 
-There is a mountain in Tucson called Sentinel Peak, which is UA's Mount A. UA students would paint the A on Tempe Butte red and blue (UA's school colors), while ASU students would paint the A on Sentinel Peak maroon and gold (ASU's school colors) in the weeks leading up to the District Cup. Two As have been painted different colors for certain reasons or by other schools.
+There is a mountain in Tucson called Sentinel Peak, which is UA's A Mountain. UA students would paint the A on Tempe Butte red and blue (UA's school colors), while ASU students would paint the A on Sentinel Peak maroon and gold (ASU's school colors) in the weeks leading up to the Territorial Cup. The two As have been painted different colors for certain reasons or by other schools.
 
 Nearby is Tempe Town Lake, a scenic place to go for a stroll.
 
 The Tempe Municipal Building is shaped like an inverted pyramid.
+
+We will then go to South Mountain Park. You can climb South Mountain, which has a summit of 2690 ft (820 m). The mountains are considered sacred to the Akimel O'odham and Kwevkepaya Yavapai people.
+
+Our final attraction is the Mystery Castle. It was built in the 1930s by Boyce Luther Gulley for his daughter, Mary Lou Gulley. Mary Lou lived in the castle from Boyce's death in 1945 until her death in 2010. It has 18 rooms and electricity and plumbing were only added in 1992.
