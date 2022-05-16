@@ -9,7 +9,7 @@ One of the places close to Sky Harbor is the Phoenix Zoo. Phoenix Zoo has been f
 
 Right next to the zoo is Papago Park. You will find the Desert Botanical Garden there. There is also a pyramid-shaped building that is the tomb of George WP Hunt, the first governor of Arizona.
 
-There is a famous halal food stand in New York called Halal Guys. They are world famous for their chicken platter, consisting of chicken, rice, lettuce and tomato and served with pita bread, white sauce and hot sauce. Since you've decided to visit Phoenix and not New York, I'd say this is not for you. However, this is not the case. Actually, Phoenix has a Halal Guys location, but it's not a food truck but rather a restaurant.
+There is a famous halal food stand in New York called Halal Guys. They are world famous for their chicken platter, consisting of chicken, rice, lettuce and tomato and served with pita bread, white sauce and hot sauce. Since you've decided to visit Phoenix and not New York, I'd say this is not for you. However, this is not the case. Actually, Phoenix has a Halal Guys location, but it's not a food cart but rather a restaurant.
 
 The next destination I had in mind was the Paragon Science Academy, but since we've already been to the Phoenix Zoo, we don't need to go there.
 
